@@ -14,7 +14,7 @@
  
 <br>
  
-### Pra conteúdo sobre programação me segue a gente nas redes abaixo!
+### Para ver meu perfil profissional e so clicar abaixo !!⬇️⬇️
  
 <div> 
   <a href="https://www.linkedin.com/in/rafael-outi-4a521522b/" target="_blank"><img src="https://img.shields.io/badge/-LinkedIn-%230077B5?style=for-the-badge&logo=linkedin&logoColor=white" target="_blank"></a>
